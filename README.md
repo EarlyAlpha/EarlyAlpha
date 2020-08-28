@@ -14,3 +14,10 @@ We don't claim to know all the answers which is why we keep an open door to you 
   - We are currently looking for stories, and perspectives.  Do you have an experience that helped you greatly in life, let us know.  If you have an idea for us we would like to hear it.
 - 📫 How can I reach out? 
   - Say hello. Email us at `earlyalphaorg@gmail.com`
+- ❤️ Do you have social media?
+  - Yes! Follow us on our social platforms for updates.
+    - [EarlyAlpha.org](https://earlyalpha.org)
+    - [Twitter](https://twitter.com/EarlyAlpha)
+    - [Instagram](https://www.instagram.com/earlyalphaorg)
+    - [YouTube](https://www.youtube.com/channel/UC2KqE3k2yuYL8_1D6ywtXJA)
+    - [Facebook](https://www.facebook.com/EarlyAlpha)
